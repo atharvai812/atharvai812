@@ -21,7 +21,7 @@
 
 ## 💼 Professional Experience
 
-### Binary10 Technologies LLP — Cybersecurity Analyst
+### Cybersecurity Analyst
 
 **March 2025 – Present**
 
